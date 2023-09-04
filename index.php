@@ -1,0 +1,1 @@
+ami tumay valo basi
